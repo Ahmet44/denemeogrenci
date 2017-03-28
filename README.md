@@ -1,3 +1,0 @@
-# denemeogrenci
-öğrenci içi deneme 
-deneme yap deneme ya deneme yap sallamasoyon işlerimiz var hep ömer nayat  ömer buraya ne yazacaz söylermisin kardeş step kopen a pull request nice open the pull request buraya gelsene lkannn manyak mısın olum sen bana bişeyker söyle yazam dashil etmiş oluyoruz öyle basit ama burda niye bunun faydası ne amerşjadajş bir projeden haberin olnmaz normalde sizin bildiğiniz elaman amerikanın her yerinde karşı taraf hiçbirini yapamıyorsunuz işkur artı şeklinde buraya mı yazıyoruz hocam son yıllarda yapılan en iyi işler arasında gösterilen ama kötü olan haberleri görenmeye biliriz şurda ne yapabiliriz nereye geldi mi masterla start karetker save 
