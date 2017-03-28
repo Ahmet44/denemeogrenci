@@ -1,0 +1,2 @@
+# denemeogrenci
+öğrenci içi deneme 
